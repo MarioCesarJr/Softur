@@ -1,1 +1,1 @@
-#Situação de Aprandizado
+#Situação de Aprandizadgem
